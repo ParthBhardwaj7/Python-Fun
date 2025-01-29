@@ -21,13 +21,4 @@
 
 ![Image](https://github.com/user-attachments/assets/ad6a6525-fb0f-4584-b65d-9ea96883b346)
 
-![Image](https://github.com/user-attachments/assets/33726f14-91b2-4c80-8b3e-9f02fa85edd2)
-
-![Image](https://github.com/user-attachments/assets/172ce911-6195-4f94-bea4-fc4e1853d046)
-
-![Image](https://github.com/user-attachments/assets/31063e89-5ba8-4af6-987a-c5414dda7d48)
-
-![Image](https://github.com/user-attachments/assets/dea3d88d-28ff-4810-9784-6d614b161251)
-
-![Image](https://github.com/user-attachments/assets/e6e7db1a-233d-4c61-8dee-dc93e7a590d4)
 
